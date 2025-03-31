@@ -1,1 +1,0 @@
-# altschool-assignment2
